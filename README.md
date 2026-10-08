@@ -1,4 +1,4 @@
-# Hi, I'm Samuel Soman 👋
+# Hi, I'm Samuel Soman
 
 BSc Computer Science with Management (First Class Honours), The University of the West Indies, St. Augustine.
 
